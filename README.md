@@ -1,1 +1,1 @@
-https://ByHannaStseliukova.github.io/rsschool-cv/shelter
+https://ByHannaStseliukova.github.io/rsschool-cv/
